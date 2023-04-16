@@ -9,8 +9,8 @@ Durante los años que he estado en la carrera de [Geografia](https://es.wikipedi
 
 todos estos son pueblos costeros con una realidad muy diferente entre si esto debido a la falta de oportunidad que existen en los pueblos dedicados a la pesca un panorama distinto se ve en los pueblos que dependen economicamente del turismo, estos ultimo no suelen tener problemas financieros pero si [problemas ambientales](https://vozdeguanacaste.com/tamarindo-tendra-que-esperar-al-menos-dos-anos-mas-por-solucion-a-aguas-residuales/#:~:text=El%20estero%20a%20la%20entrada,cada%20100%20mililitros%20de%20agua) por la cantidad de construcciones que se han realido y la explotacion del suelo, ir por ejemplo a Tamarindo es como estar casi en otro pais la mayoria de locales y servicios estan acondicionados para personas extranjeras, la mayor evidencia de esto es que casi la totalidad de los carteles publicitarios están en inglés, la otra gira a la que asistí fue a __Puntarenas, Jaco, y Tárcoles__
 
-![imagen de jaco via web](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Jaco_Beach_Costa_Rica.jpg/250px-Jaco_Beach_Costa_Rica.jpg)
-(Wikipedia, 2006)
+![imagen de jaco via web](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/0f/16/f1/08/jaco-beach-costa-rica.jpg?w=1200&h=-1&s=1)
+(Tripadvisor, 2022)
 
 antes de empezar la gira pensé que tárcoles iba a ser un pueblo turístico que se basaba su economía en el turismo pero nada cerca de la realidad ya que si bien es cierto que varias personas emprendedoras aprovechar este fenómeno para generar sus ingresos esta no es la norma en el resto del pueblo, ya que la mayor parte de la población gasta la mayor parte de su tiempo en la playa dando tours o pescando, en el mismo cantón se encuentra Jaco que en estos últimos años se ha visto un desplazamiento por culpa del turismo, los negocios de los locales cada vez se ven menos en el centro ya que este sector es ocupado por las grandes empresas internacionales.
 ### Y aquí un recuento de los lugares a los que he tenido la oportunidad de explorar estando en giras :
