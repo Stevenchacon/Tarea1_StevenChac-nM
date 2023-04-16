@@ -3,6 +3,7 @@ Durante los años que he estado en la carrera de [Geografia](https://es.wikipedi
 
 
 ![avellanas2](https://user-images.githubusercontent.com/129206796/232344724-f834faf3-2146-4524-92c1-2013da8a4513.jpg | width=100)
+
 (Go playa, 2018)
 
 todos estos son pueblos costeros con una realidad muy diferente entre si esto debido a la falta de oportunidad que existen en los pueblos dedicados a la pesca un panorama distinto se ve en los pueblos que dependen economicamente del turismo, estos ultimo no suelen tener problemas financieros pero si [problemas ambientales](https://vozdeguanacaste.com/tamarindo-tendra-que-esperar-al-menos-dos-anos-mas-por-solucion-a-aguas-residuales/#:~:text=El%20estero%20a%20la%20entrada,cada%20100%20mililitros%20de%20agua) por la cantidad de construcciones que se han realido y la explotacion del suelo, ir por ejemplo a Tamarindo es como estar casi en otro pais la mayoria de locales y servicios estan acondicionados para personas extranjeras, la mayor evidencia de esto es que casi la totalidad de los carteles publicitarios están en inglés, la otra gira a la que asistí fue a __Puntarenas, Jaco, y Tárcoles__
