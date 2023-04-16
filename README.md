@@ -1,2 +1,2 @@
 # Experiencias en trabajo de campo
-Durante los años que he estado en la carrera de [Geografia](https://es.wikipedia.org/wiki/Geograf%C3%ADa)
+, debiDurante los años que he estado en la carrera de [Geografia](https://es.wikipedia.org/wiki/Geograf%C3%ADa) he podido desarrollar diferentes trabajos en los diferentes cursos que he realizado, estos trabajos de investigacion me han ayudado a pulir mis habilidades en el campo, debido a la pandemia el primer año de la carrera fue virtual, lo cual me sirvio principalmente para llevar las materias de humanidades y poder sacar los cursos introductorios de la escuela, uno de estos cursos fue __Cartografia y Tecnicas__ de campo el cual fue mi primera experiencia en campo
